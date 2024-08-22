@@ -32,4 +32,3 @@ mada daremo shiranai
 kankaku de sukuwarete iku
 
 ...
-(https://static.wikia.nocookie.net/projectsekai/images/4/4f/25-ji%2C_Nightcord_de_4th_Single_Cover.jpg/revision/latest?cb=20230323221857)
